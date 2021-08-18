@@ -1,1 +1,1 @@
-**Strong** __ALX_
+**Strong** __ALX is good_
